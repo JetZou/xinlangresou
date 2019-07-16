@@ -7,6 +7,5 @@ https://xhboke.com/mz/resou.php</blockquote>
 https://www.xhboke.com/896.html<br>
 转载请注明，谢谢合作
 <h2>XiaoGuo</h2>
-<a href="https://www.xhboke.com/wp-content/uploads/2018/06/20180612.png"><img src="https://www.xhboke.com/wp-content/uploads/2018/06/20180612.png" alt="" width="1366" height="594" class="alignnone size-full wp-image-897" /></a>
-<a href="https://www.xhboke.com/wp-content/uploads/2018/06/2018061201.png"><img src="https://www.xhboke.com/wp-content/uploads/2018/06/2018061201.png" alt="" width="445" height="630" class="alignnone size-full wp-image-898" /></a>
+2019.07.16
 
